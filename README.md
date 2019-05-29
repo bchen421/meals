@@ -10,3 +10,7 @@
 - Red Kale: 1lb?
 
 ## [Quinoa, Purple Yams, Asparagus and Cherry Tomatoes](./meal2.md)
+- Quinoa: 1 bag?
+- Purple Yams: 6?
+- Asparagus: 3lbs?
+- Roasted Cherry Tomatos: 2lbs?
